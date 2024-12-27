@@ -1,0 +1,1 @@
+There are different kind of scheme tasks with its simple solutions
